@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 ### Welcome to my kitchen!
 
 - 🍳 I’m currently working on a personal website
-- 🍜 I’m currently learning anything I can!
+- 🍜 I’m currently learning anything I can! There is room to grow everywhere.
 - 🍓 How to reach me: laolimkim@gmail.com
 - 🥐 Pronouns: She/Her
